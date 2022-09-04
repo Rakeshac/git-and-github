@@ -1,3 +1,3 @@
 gowri puthra
-haba
+ganapathi haba
 nama
